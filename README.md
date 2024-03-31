@@ -9,7 +9,7 @@ Welcome to my tech playground! 🎡 Here, creativity merges with code, and curio
 
 - 💞️ **I’m looking to collaborate on** projects that challenge the status quo. Whether it's enhancing product quality, streamlining project management processes, or unlocking insights through data analysis, I’m here to make a difference.
 
-- 📫 **How to reach me:** Feel free to connect with me via email at **ac129@illinois.edu** or on [[LinkedIn](https://www.linkedin.com/in/aishwaryachourasia)](https://www.linkedin.com/in/aishwarya-chourasia-65b381151/). Let’s talk about how we can change the world with technology!
+- 📫 **How to reach me:** Feel free to connect with me via email at **ac129@illinois.edu** or on [[LinkedIn](https://www.linkedin.com/in/aishwarya-chourasia-65b381151/)]. Let’s talk about how we can change the world with technology!
 
 - 😄 **Pronouns:** She/Her
 
